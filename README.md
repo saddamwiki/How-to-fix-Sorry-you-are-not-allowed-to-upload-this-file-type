@@ -1,0 +1,1 @@
+# How-to-fix-Sorry-you-are-not-allowed-to-upload-this-file-type
